@@ -21,4 +21,4 @@ New York City · Chicago · Las Vegas · Grand Canyon · Washington DC · Montre
 
 ## Links
 
-- [YouTube Channel](https://www.youtube.com/@emilian2882)
+- [YouTube Channel](https://www.youtube.com/@newyorktimelapsechannel5299)
