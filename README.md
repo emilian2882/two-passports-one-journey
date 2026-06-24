@@ -24,3 +24,4 @@ New York City, Chicago, Las Vegas, Grand Canyon, Washington DC, Montreal, Floren
 - [YouTube Channel](https://www.youtube.com/@newyorktimelapsechannel5299)
 - [Instagram](https://www.instagram.com/new_york_timelapse_channel/)
 - [TikTok](https://www.tiktok.com/@newyork_timelapsechannel)
+- [Facebook](https://www.facebook.com/profile.php?id=100076312263164)
