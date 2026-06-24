@@ -11,7 +11,7 @@ A YouTube channel dedicated to stunning timelapse and hyperlapse videos of New Y
 
 ## Destinations covered
 
-New York City · Chicago · Las Vegas · Grand Canyon · Washington DC · Montreal · Florence · Paris · Barcelona · Vienna · and more.
+New York City, Chicago, Las Vegas, Grand Canyon, Washington DC, Montreal, Florence, Paris, Barcelona, Vienna, and more.
 
 ## Tools & workflow
 
