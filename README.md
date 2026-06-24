@@ -1,4 +1,4 @@
-# New York City Timelapse Channel
+# Two Passports One Journey
 
 A YouTube channel dedicated to stunning timelapse and hyperlapse videos of New York City and travel destinations around the world.
 
@@ -21,7 +21,7 @@ New York City, Chicago, Las Vegas, Grand Canyon, Washington DC, Montreal, Floren
 
 ## Links
 
-- [YouTube Channel](https://www.youtube.com/@newyorktimelapsechannel5299)
-- [Instagram](https://www.instagram.com/new_york_timelapse_channel/)
-- [TikTok](https://www.tiktok.com/@newyork_timelapsechannel)
+- [YouTube Channel](https://www.youtube.com/@twopassportsonejouney)
+- [Instagram](https://www.instagram.com/two_passports_one_journey)
+- [TikTok](https://www.tiktok.com/@two_passportsonejourney)
 - [Facebook](https://www.facebook.com/profile.php?id=100076312263164)
