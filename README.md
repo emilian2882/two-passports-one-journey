@@ -1,8 +1,8 @@
 # Two Passports One Journey
 
-Welcome to Two Passports One Journey — we're Emilian & Dijana, a couple who turned their love for travel into cinematic adventures.
+Welcome to Two Passports One Journey - we're Emilian & Dijana, a couple who turned their love for travel into cinematic adventures.
 
-From the streets of New York City to the mountains of Canada, the hidden villages of Tuscany to the boulevards of Paris — we bring you 4K drone footage, walking tours, and honest travel guides to help you plan your next trip.
+From the streets of New York City to the mountains of Canada, the hidden villages of Tuscany to the boulevards of Paris - we bring you 4K drone footage, walking tours, and honest travel guides to help you plan your next trip.
 
 New video every week. Subscribe and travel with us.
 
